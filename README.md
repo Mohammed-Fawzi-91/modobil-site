@@ -1,1 +1,1 @@
-# modobil-site
+google.com, pub-8343303728614363, DIRECT, f08c47fec0942fa0
